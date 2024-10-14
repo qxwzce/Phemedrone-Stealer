@@ -1,3 +1,9 @@
+ВЕРСИЯ НЕ АКТУАЛЬНА, ДЛЯ АКТУАЛ ВЕРСИИ ПЕРЕХОДИТЕ В ТЕЛЕГРАММ КАНАЛ АВТОРОВ СОФТА !!!
+
+https://t.me/freakcodingspot
+https://t.me/freakcodingspot
+https://t.me/freakcodingspot
+
  ,d88b.d88b,    
  88888888888    Phemdrone Stealer 2.2.0
  `Y8888888Y'    Change log
